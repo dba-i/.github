@@ -1,1 +1,1 @@
-## Join our [Discord](https://discord.gg/Fs3Nqpgx) and share your feedback!
+## Join our [Discord](https://discord.gg/G9GGkrykBj) and share your feedback!
